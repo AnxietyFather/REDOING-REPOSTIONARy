@@ -1,6 +1,6 @@
 
 <p align="Center">
-<img width="450" height="200" alt="Image" src="https://github.com/user-attachments/assets/f68bc2b6-7b38-49bd-8dea-e362e2839f73" />
+<img width="400" height="400" alt="Image" src="https://github.com/user-attachments/assets/b0837099-0889-4741-8152-4c1602cfe82273" />
 </p>
 <p align="Center">
 𝓕𝓸𝓵𝓵𝓸𝔀 𝓫𝓪𝓬𝓴𝓼! 𝓦𝓲𝓵𝓵 𝓾𝓷𝓯𝓸𝓵𝓵𝓸𝔀 𝓲𝓯 𝔂𝓸𝓾 𝓾𝓷𝓯𝓸𝓵𝓵𝓸𝔀!!..
@@ -27,7 +27,7 @@
  ‎ᵀᵒ ᵐʸ ˡᵒᵛᵉ ˊ ᵈʳᵃᶜᵘˡᵃ <- ᶠⁱᶜᵗⁱᵒⁿˊ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎≽^•⩊•^≼ ‎  ‎ ‎ ‎ ‎‎‎≽^•⩊•^≼
 </p>
 
-<img align="left" width="350" height="350" alt="Image"  src="https://github.com/user-attachments/assets/50d14800-134c-452d-b2bb-9582b15fb3d00" alt="My Image">
+<img align="left" width="350" height="350" alt="Image"  src="https://github.com/user-attachments/assets/983273d4-6648-48b2-8f9d-223b0f1836d2" alt="My Image">
 </p>
 
 <p align="left">
