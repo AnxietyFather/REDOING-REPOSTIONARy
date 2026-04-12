@@ -82,8 +82,82 @@
 </p>
 
 <p align="Center">
+You can click on these!! (These are in beta...)
+</p>
+
+<p align="Center">
+<details>
+  <summary><ins>EXPLAINING</ins></summary>
+
+  <div align="center">
+    <p>Greetings, I am Drac, or Alaric, you may have known me as Ivor, in the past.</p>
+    <p>This is simply my DNI and INT, as in title.</p>
+  </div>
+</details>
+
+<br>
+</p>
+
+<p align="Center">
+<details>
+  <summary><ins>DNI</ins></summary>
+
+  <div align="center">
+    <p>DNI 1. Proshippers, Problimatic people, and Any people from Helluva, or TADC, i am in those fandoms, but i do not like the people of the fandom.</p>
+    <p>DNI 2. DNI Anyone OVER 18+, i do allow exceptions, but not from strangers. </p>
+  </div>
+</details>
+
+<br>
+</p>
+
+<p align="Center">
+<details>
+  <summary><ins>DNI</ins></summary>
+
+  <div align="center">
+    <p>INT 1. People in fandoms such as, Castlevania, FNAF, Good omens, Monster high, Cuphead, and Bendy!!</p>
+    <p>INT 2. Anyone UNDER 18, including littles! (Under 12 folk!) Please do tell me if you are under 12, because of my humor! </p>
+    <p>INT 3. Anyone whos not DNI can ofc int! but i am not currently looking for friends! since i am overwhelemed.. but i do welcome any that come my way!</p>
+  </div>
+</details>
+
+<br>
+</p>
+
+<p align="right">
+‎ ‎ 
+</p>
+
+<p align="right">
+‎ ‎ 
+</p>
+
+<p align="right">
+‎ ‎ 
+</p>
+
+<p align="Center">
 ⚝ 𝘛𝘩𝘪𝘴 𝘸𝘢𝘴 𝘮𝘢𝘥𝘦 𝘰𝘯 𝘭𝘢𝘱𝘵𝘰𝘱! 𝘴𝘰 𝘮𝘢𝘺 𝘯𝘰𝘵 𝘭𝘰𝘰𝘬 𝘨𝘳𝘦𝘢𝘵 𝘰𝘯 𝘮𝘰𝘣𝘪𝘭𝘦 ⚝
 </p>
+<p align="right">
+‎ ‎ 
+</p>
+<p align="right">
+‎ ‎ 
+</p>
+<p align="right">
+‎ ‎ 
+</p>
+<p align="right">
+‎ ‎ 
+</p>
+
+
+
+
+
+
 
 <p align="Center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀
